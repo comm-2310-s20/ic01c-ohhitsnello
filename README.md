@@ -6,7 +6,7 @@
 
 1. I'm taking this class because _________________________
 
-1. My favorite movie is **Fruitvale Station
+1. My favorite movie is **Fruitvale Station**
 
 1. My favorite tv show is **Spongebob and Boondocks**
 
